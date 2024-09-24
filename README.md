@@ -1,0 +1,8 @@
+- 👋 Hi, I’m kaviya-101-code
+- 👀 I’m interested in software development, AI, and open-source projects.
+- 🌱 I’m currently learning C, C++, and Python.
+- - 💪 Personal strengths: self-motivating and hardworking.
+- 💞️ I’m looking to collaborate on open-source projects and innovative tech solutions.
+- 📫 How to reach me: kaviyakarikalan2006@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I love drawing and exploring new trails!
